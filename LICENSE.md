@@ -1,4 +1,4 @@
-# 
+# Ultimate breakout trading bot add-ons for Mac OS | Elite breakout trading bot add-ons for PC Windows. Featuring volume analysis and position sizing — optimized for maximum performance on every platform.
 
 
 
